@@ -1,6 +1,6 @@
 # intro-P
 hiii im kuni or vivi 
-im 16 plus sapphic im audhd with anxiety woow and abandonment issues !!
+im 16 and sapphic im audhd with anxiety woow and abandonment issues !!
 use he/him with me only,she/her if close
 im a big yuri enjoyer any type unless itz illegal .
 my main interests are kiamei, ggz//hi3 in general, my ocs , cthulhu mythos and albedo.

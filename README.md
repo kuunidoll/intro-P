@@ -1,11 +1,15 @@
-# intro-P
-hiii im kuni or vivi 
-im 16 and sapphic im audhd with anxiety woow !! 
-use he/him with me only,she/her if close
-im a big yuri enjoyer any type unless itz illegal .
-my main interests are kiamei, ggz//hi3 in general, my ocs , cthulhu mythos and albedo.
-anyone can int just basic dni and under 15 !! .
-i dont play pt anymore alot so when i do im alone or with a friend but im mostly alone so int ig 
-i can be dry if im having a bad day.
-also if i have DNI on my name respect it. 
+intro 
+
+vivi or kuni | 16 | scara/n irl <3
+
+i use he/him only.
+
+im audhd with dop and anxiety disorder. 
+
+note : bcs of my anxiety i may be really dry sometimes or just not talking , i prefer to play pt with my friends or family than random people.
+if u see me alone im in the menu making a skin so pls w2i or u can just cuddle i dont mind. just pls dni if u are under 15 and ofc basic dni .
+
+ps i love my wife ilysm my star u make my day , u are my world ♡
+
+
 

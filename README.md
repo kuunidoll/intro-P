@@ -1,17 +1,18 @@
 intro 
 
-vivi or kuni | 16 | scara irl <3
+no name just call what you want just nothing weird , im 16 also im a scara irl if that could tell you smtg .
 
-im also a pomni c- link !! >⁠.⁠<
+im also a dazai/sunny/ena c-link .
 
 i use he/him or it/its only.
 
-im audhd with odd and anxiety disorder. 
+im audhd with odd , anxiety disorder and depression with heavy signs of bpd .
 
-note : bcs of my anxiety i may be really dry sometimes or just not talking , i prefer to play pt with my friends or family than random people.
-if u see me alone im in the menu making a skin so pls w2i or u can just cuddle i dont mind. just pls dni if u are under 15 , ofc basic dni and jax skins :⁠-⁠\ 
+since my mental heatlth is terrible rn im pretty much dry and really cold overall , i often isolate myself too so if i randondmly dissapear its bcs im tired and my social battery is low , i get bored often when talking to people even my friends so i often go offtab , overall if u wanna int just cuddle pls i apprecciate them .
+last thing unless we are close do not vent to me idc abt your problems unless i value you so much to consider you my close friend .
 
-ps i love my wife ilysm my star u make my day , u are my world ♡
+dni under 15 , basic dni , overly sensitive people and people who see cluster b people as toxic/abusive .
+
 
 
 

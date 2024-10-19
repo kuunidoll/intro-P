@@ -8,10 +8,8 @@ i use he/him only.
 
 im audhd with odd , anxiety disorder and depression with heavy signs of bpd .
 
-i gen dont care abt who u are or what u like but pls kindly dni : religious people , proshippers and under 16 .
+i gen dont care abt who u are or what u like but pls kindly dni : religious people , proshippers and under 15 .
 
-im not looking to make friends .
-i have some but rn i just wanna just stay alone so i have dni . 😂
 
 
 

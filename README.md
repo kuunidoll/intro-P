@@ -1,6 +1,6 @@
 intro 
 
-i have alot of names and no sense of self so just call me what you want just nothing weird , im 16 also im a scara irl if that could tell you smtg .
+i have alot of names so just call me what you want just nothing weird , im 16 also im a scara irl if that could tell you smtg .
 
 im also a dazai/sunny/ena c-link.
 

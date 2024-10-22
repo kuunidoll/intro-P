@@ -1,14 +1,18 @@
-intro 
+╰⁠(⁠⸝⁠⸝⁠⸝⁠´⁠꒳⁠`⁠⸝⁠⸝⁠⸝⁠)⁠╯ ' intro !!
 
-i have alot of names so just call me what you want just nothing weird , im 16 also im a scara irl if that could tell you smtg .
+' ena !! ^⁠_⁠^
+' 16 || he/him 
+' im a albedo yume ♡
+' i play pt alone at the moment :⁠-⁠P
 
-im also a dazai/sunny/ena c-link.
+i often isolate myself and wanna stay alone cause of my mental health and current irl situation :⁠-⁠\ 
 
-i use he/him only.
+PLZZ MIZUKI SKINS INT I LOVE U ALL MHAW MHAW MHAW MHAW MHAW MHAW 
 
-im audhd with odd , anxiety disorder and depression with heavy signs of bpd .
+dni pls : under 16 , religious people , proshippers , albedo yumes and basic dni :⁠-⁠P 
 
-i gen dont care abt who u are or what u like but pls kindly dni : religious people , proshippers and under 15 .
+im a scara/ena irl btw heh 
+
 
 
 

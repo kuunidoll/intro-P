@@ -7,16 +7,18 @@
 ' 16 || he/him 
 
 
-' im a albedo yume ♡
+' im a venti yume ♡
 
 
-' i play pt alone at the moment :⁠-⁠P
+' i play pt alone or with friends :⁠-⁠P
 
 i often isolate myself and wanna stay alone cause of my mental health and current irl situation :⁠-⁠\ 
 
-PLZZ MIZUKI SKINS INT I LOVE U ALL MHAW MHAW MHAW MHAW MHAW MHAW 
 
-dni pls : under 16 , religious people , proshippers , albedo yumes and basic dni :⁠-⁠P 
+i love my skibidi wife ^⁠_⁠^
+
+
+dni pls : under 16 , religious people , proshippers , venti yumes and basic dni :⁠-⁠P 
 
 im a scara/ena irl btw heh 
 

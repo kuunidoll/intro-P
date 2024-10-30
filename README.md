@@ -1,7 +1,7 @@
 ╰⁠(⁠⸝⁠⸝⁠⸝⁠´⁠꒳⁠`⁠⸝⁠⸝⁠⸝⁠)⁠╯ ' intro !!
 
 
-' ena !! ^⁠_⁠^
+' ena/vivi !! ^⁠_⁠^
 
 
 ' 16 || he/him 
@@ -21,6 +21,7 @@ i love my wife ^⁠_⁠^
 dni pls : under 16 , religious people , proshippers , venti yumes and basic dni :⁠-⁠P 
 
 im a scara/ena irl btw heh 
+and mafu kinnie ..
 
 
 
